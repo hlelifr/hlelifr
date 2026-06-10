@@ -1,2 +1,2 @@
 ## about
-quant fin and mma <3
+quant fin & mma <3
