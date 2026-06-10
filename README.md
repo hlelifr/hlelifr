@@ -1,2 +1,2 @@
 ## about
-quant fin and mma 🖤
+quant fin and mma <3
